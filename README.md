@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @pragyakp1
+- 👀 I’m interested in coding and making live projects
+- 🌱 I’m currently learning HTML, CSS
+- 📫 How to reach me-Email ID: pragyakp1@gmail.com
+                    - instagram ID @bite_glory259
+- 😄 Pronouns: she/her
